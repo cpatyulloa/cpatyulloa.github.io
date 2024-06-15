@@ -1,1 +1,0 @@
-# cpatyulloa.github.io
